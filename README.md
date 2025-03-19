@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Laxmi-gar
-- 👀 I’m interested in ...it sector
+- 👀 I’m interested in the IT sector
 - 🌱 I’m currently learning ...Amazon Webservices in Barcelona
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...bhagyalaxmi111@gmail.com
-- 😄 Pronouns: ...learning newthings and keeping in positve way
+- 😄 Pronouns: ...learning new things and keeping in a positive way
 - ⚡ Fun fact: ... catch up with friends
 
 <!---
