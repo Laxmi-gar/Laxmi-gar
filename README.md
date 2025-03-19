@@ -2,7 +2,7 @@
 - 👀 I’m interested in the Information Technology sector
 - 🌱 I’m currently learning ...Amazon Webservices in Barcelona
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...bhagyalaxmi111@gmail.com
+- 📫 How to reach me ...bhagyalaxmig111@gmail.com
 - 😄 Pronouns: ...learning new things and keeping in a positive way
 - ⚡ Fun fact: ... catch up with friends
 
